@@ -1,0 +1,12 @@
+# The End of Dream
+
+Course: https://www.youtube.com/watch?v=g3w5NRfl2IQ
+
+Tired of sleeping on the floor, a young man in Tehran saved up for years to buy a real bed. For the first time in his life, he became the proud owner of a bed which had springs and a mattress.
+
+Because the weather was very hot, he carried the bed onto the roof of his house. He slept very well for the first two nights, but on the third night, a storm blew up. A gust of wind swept the bed off the roof and sent it crashing into the courtyard below. The young man did not wake up until the bed had struck the ground. 
+
+Although the bed was smashed to pieces, the man was miraculously unhurt. When he woke up he was still on the mattress. Glancing at the bits of wood and metal that lay around him, the man sadly picked up the mattress and carried it into his house. After he had put it on the floor, he promptly went to sleep again.
+
+Lesson1:
+Lesson2:
